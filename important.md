@@ -1,0 +1,1 @@
+It is more important to fully understand the work and i can do this by reading carefully , asking questions and take notes, and put in more time to do my work. rather than rushing to complete the cards. I say this because i would like to become a professional data engineer/developer , and i can only do this through understanding the work.
